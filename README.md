@@ -2,7 +2,7 @@
 
 In no particular order I am...
 
-- 🧒🏼 👦🏻 👩🏻 Father of two, live-in partner of one
+- 🧒🏼 👦🏻 👩🏻 Father of two, live-in partner of another one
 - 💻 Software developer (mostly Scala & Kotlin)
 - 🎻 (Very) Amateur violinist
 - ⏩ Founder of [Agilogy](https://agilogy.com/)
